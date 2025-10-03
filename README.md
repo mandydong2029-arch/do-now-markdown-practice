@@ -1,1 +1,2 @@
 # do-now-markdown-practice
+My favorite **memory** in *MESA* was making friends and meeting people who went to my middle school who I wasn't familiar with. I also like the *school lunches* and I enjoy **PE** class.
